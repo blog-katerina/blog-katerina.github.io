@@ -2,6 +2,8 @@
 let
   pkgs = import <nixpkgs> { };
 
+  # When the Gemfile deps are changed, to generate gemset.nix:
+  # nix-shell -p bundler -p bundix --run 'bundler update; bundler lock; bundler package --no-install --path vendor; bundix; rm -rf vendor'
   jekyll_env = pkgs.bundlerEnv rec {
     name = "jekyll_env";
     ruby = pkgs.ruby;
