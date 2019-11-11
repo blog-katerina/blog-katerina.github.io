@@ -1,0 +1,45 @@
+---
+layout: post
+title: "It's as easy as ABC"
+categories: post
+author: "Katerina"
+meta: "Springfield"
+---
+
+APRENDER- The verb for “to learn.” 
+
+I’ve been in Chile for 28 days now, and still there is no shortage of this happening. One day while I was walking home from school, I saw an adorable little bookstore. Knowing that reading is a wonderful way to improve communication skills in a foreign language and also that libraries and book stores are practically nonexistent here, I was eager to stop in. I was even more excited when I noticed that the sign mentioned the word “cambiar” or to change (one of my new vocabulary words). From what I understood, this was a place books came to change lives-a used book store! But my Spanish abilities failed me yet again, and instead of finding a collection of used books, I found myself surrounded in a store completely filled with books about Jesus and God. Oops! I ended up satisfying my craving for literature later on that week at a market stand in Valparaiso.  I’m proud to say my first spanish book is La Principito (The Little Prince. Le Petit Prince).  
+
+ On Saturday, a large group of exchange students from my university went to Santiago for the day. We stopped by the Palacio de La Moneda (where the president Sebastian Pinera works), we toured a couple of museums (with exhibits ranging from Africa to Antarctica to dead bodies), we visited one of the many famous churches (this one was called Catedral Metropolitana), we wandered through el Parque Forestal, and to end the day, we rode in an ascensor to the top of Cerro San Cristobal to watch the sun set. The city is enormous and busy busy busy. My culture teacher described my feelings best when she said she loves Santiago but only because she’s not living there; it’s definitely a place to visit. My favorite part of the day was either seeing the city from on top of the hill...
+
+  [![IMG_0435](/assets/images/6a010536fa9ded970b019aff17cc4e970c.jpg "IMG_0435")](/assets/images/6a010536fa9ded970b019aff17cc4e970c.jpg)
+
+Or hugging a llama in the middle of a downtown market..
+
+  [![IMG_0413](/assets/images/6a010536fa9ded970b019aff177734970b.jpg "IMG_0413")](/assets/images/6a010536fa9ded970b019aff177734970b.jpg)
+
+ Another day, I had one of those conversations that can change the course of life. Dramatic, I know. It was with another American, a young woman named Ahzha. She had stayed with the same family several years ago (I’m their 10th gringa!), and she and one other chico were the first gap year students to come to Chile through CIEE. It was inspiring to hear how good her spanish was, and we chatted about the family, the city, and our experiences (well at least mine thus far). She also shared her insight on what’s best to do on a Thursday night (an old salsa club that I might have to check out), what to do when the infamous culture shock attacks (like perhaps go for a stroll on the beach), which cities I should definitely travel to (Pucon!!), and how to make the @ on a spanish keyboard (trust me, it’s a lot harder than you’d think). She also introduced me to something called a TESL certificate (Teaching English as a Second Language). Considering how my plans for second semester are very much in the air, perhaps I’ll follow her footsteps yet again and become a teacher somewhere in South America. Could be cool, don’t you think? 
+
+BAILAR- The verb for “to dance.” 
+
+ After fourteen years of tights, leotards, mirrors, barres, first positions, releves and pas de chats, I’m finding I really miss dance class. This hole in my life has forced me to find new, inventive ways to get my fix of musical movement. A couple of times, when nobody else is home, I’ve used the living room as a stage and jammed out by myself for a little bit. It’s not quite the same, but I’m surviving. I also went to my first discotec with my host brother, one of his friends and my host cousin. It was an interesting experience with out a doubt, but a fun one too. We ran into some of my friends from the university and one of the guys who has connections with probably half the city by now got us into a select, list only club. “Ooooh” It was loud, crowded, and crazy! 
+
+ On a bit more classy of a note, I’ve been learning the cueca here and there too. The cueca is the national dance of Chile, and apparently, in about two weeks I’m going to be very thankful I know it. (Chile’s independence day is September 18, and they celebrate hard). My sister Cata claims it looks like the mating dance between two chickens. Depending on who’s dancing, sometimes she’s spot on. I’ve seen a two couples who take cueca classes dance it, and they make it look graceful, and extremely flirty. Me? The chicken description, if I’m lucky. 
+
+My first cueca class was on Friday with all the CIEE students. We had a culture day at this farm that was way out in the country, surrounded by mountains and green green green! It was probably the most serene scene I’ve seen thus far in Chile, and I’m hoping I’ll be able to adventure back sometime later this semester. Anyways, back to the dance. We all lined up, and for about an hour, tried to mimic our young teacher’s side step, or stomping rhythm pattern, or delicate twirling hand. There was a competition afterwards, and my dear friend Maggie and I did not win. What a surprise. But it was definitely a giggling worthy experience, and I had a lovely time. 
+
+The second time was with students from the university. Since the class was outside in the chilly evening air, we warmed up with a traditional Mapuche dance. The girls part required a lot of hips moving in figure eights, and the guys part...well it had a lot of hip movement too, but I have no idea how to describe it. My years of dance did not prepare me enough for the Mapuche War Dance I guess. After we were warmed up and humbled, we learned the very basic movements. Much of it was repetition for me, but I didn’t mind learning again. I have a better understanding of the dance overall, but I don’t know if you could call my movements dancing yet. Guy meets girl. Walk arm and arm for a bit. Leaves girl and they both clap for a while, a syncopated beat. When the singing starts, make two s shape movements, make some half moons, stomp some feet, switch places, do a little jig, make another s, and end arm and arm again. In total, the dance lasts about 1.5 minutes. I’m optimistic about the cueca, because I’m pretty sure I could not be any worse at it. Can’t wait to learn more! (below you can see us doing the Mapuche War Dance) 
+
+  [![1074202_10151519890761486_770678503_o](/assets/images/6a010536fa9ded970b019aff177a3c970b.jpg "1074202_10151519890761486_770678503_o")](/assets/images/6a010536fa9ded970b019aff177a3c970b.jpg)
+
+COCINAR- The verb for “to cook.” 
+
+Cooking here is bonding in food form. How perfect! At the same culture day activity (the one on Friday with CIEE kids) I learned how to make sopaipillas. They’re that delicious, orange, deep fried pastry that’s popular on rainy days, and now that I have a basic understanding of the recipe, I’m going to be eating a lot more of them. This time we ate some of them with pevre, which is the Chilean salsa, and some of them with a dusting of powder sugar. I think I ate 6\. It’s impressive really that nobody here uses recipes. When I help my host mother make lunch, she just throws whatever she thinks looks good into a pot and lets it simmer. One day, the stew looked a bit too watery to her, and to my surprise and initial horror, she grabbed some bread, soaked it in water, drained it a little bit and then stuck it in the soup. I was hesitant to try the bready, gooey, mixture, but of course, she knew what she was doing, and it was delicious. I’m hoping I’ll be able to have a collection of Chilean recipes by the time I return home, or at least an idea of what the ingredients are. 
+
+One of Cata’s friends, came over with her mother one evening. Her mother loves to sew, and so she adjusted the waist of some pants I found at a thrift store (the green ones in the dancing picture above), while Karla (the friend), Cata, and I made lemon meringue pie. Amazing! Karla is a fantastic cook and an all around cheery person. I like her already. 
+
+[![IMG_0456](/assets/images/6a010536fa9ded970b019aff177cd3970b.jpg "IMG_0456")](/assets/images/6a010536fa9ded970b019aff177cd3970b.jpg)
+
+(Oh, also, my hair is purple! It was Cata's idea, and why not?)
+
+My most recent cooking adventure could be described as book a success and a failure. Maggie (a CIEE gap friend), and two chicos from Spain came over to my house one evening to make scones. For whatever reason, the batter ended up being really liquidy, much more like brownie batter’s consistency than the stiff scone one, and so our “scones” resembled muffin tops, kind of purple-ish blobs. One of the guys, Daniel (they’re both named Daniel actually), and I both cut ourselves on the flour jar in that perfect way that doesn’t hurt but involves a lot of blood. That was the failure part. However, we all had a lovely time, and the final products ended up being quite tasty. Success :)
