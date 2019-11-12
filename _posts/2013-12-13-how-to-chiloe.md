@@ -42,7 +42,7 @@ And other possibly helpful travel tips.
 
 -Sing like nobody else is listening. Throughout the trip, we had several great moments where we just beleted songs like there was no tomorrow. Now Nicolas is actually a singer (has his own songs and everything), and Olivia can successfully carry a tune, but as for me...well it was fun let's just say. We brought out our Louis Armstrong voices, practiced our spanish (by singing spanish songs), and challenged our memories (trying to remember Christmas songs). Here is one that I really only know the chorus to but it has been stuck in my head for way too long anyways. Enjoy! 
 
-<iframe width="420" height="315" src="https://www.youtube.com/embed/_dRsmc8vDN0" frameborder="0" allowfullscreen></iframe>
+<iframe width="420" height="315" src="https://www.youtube.com/embed/_dRsmc8vDN0" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 
 -Meet kind French men with Cars who will drive you to see PENGUINS! Over homemade bread and jam one morning, we struck up a conversation with a friendly man who was in Chile working on a forrestry project. He was interested in going to see the penguins and happend to have a little car, and he invited us to go along with him. So we took him up on his offer.  We got to see two different types of penguins (Humboldts and Magallanes), lots of native birds (whose names I don't remember unfortunately), and an otter! [![IMG_2021](/assets/images/6a010536fa9ded970b019b02c22742970c.jpg "IMG_2021")](/assets/images/6a010536fa9ded970b019b02c22742970c.jpg)
 
