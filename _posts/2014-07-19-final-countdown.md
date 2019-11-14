@@ -62,7 +62,7 @@ The term “year off” could not be further from the truth; it would be better 
 
 In my first blog post, I described myself as someone “looking for some adventure, a revived love for learning outside of the traditional classroom setting, new friends, a clearer sense of self, and memories that will last a lifetime.” I definitely found all of that and more in Chile. Very few people have the opportunity to drop everything and do exactly what they want to do, and I’m extremely grateful I was given the chance. When you’re young, curious, and free of serious responsibility, hay que aprovechar*, and that’s exactly what I did. (*Spanish phrase for seize the day!)
 
-  [![Screen Shot 2014-05-08 at 10.03.31 PM](/assets/images/6a010536fa9ded970b01a3fd34ef0a970b.jpg "Screen Shot 2014-05-08 at 10.03.31 PM")](/assets/images/6a010536fa9ded970b01a3fd34ef0a970b.jpg)
+  [![Screen Shot 2014-05-08 at 10.03.31 PM](/assets/images/6a010536fa9ded970b01a3fd34ef0a970b.png "Screen Shot 2014-05-08 at 10.03.31 PM")](/assets/images/6a010536fa9ded970b01a3fd34ef0a970b.png)
 
 Well, that’s all folks. The end of the blog. A BIG THANK YOU to all who have taken the time to read a post here and there. Thank you again to my mother and my brother and all the rest of the loving people who made up my support web. Thank you Julies for the Wifi and electiricy in the middle of the Wisconsin woods. Thank you Chile.
 
